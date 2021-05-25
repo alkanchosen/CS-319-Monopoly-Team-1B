@@ -4,6 +4,10 @@
 
 [Image Source](https://www.amazon.com/Hasbro-00009-97-Monopoly/dp/B00000IWCT)
 
+### Trailer (Click to view)
+
+[![Monopoly Trailer](https://img.youtube.com/vi/48PbnME0o_Y/0.jpg)](https://www.youtube.com/watch?v=48PbnME0o_Y)
+
 ### Game Description
 
 Monopoly is a board game where 2-6 players try to be the wealthiest person in the game through buying, selling, renting or even mortgaging. Players use a pair of dice to move around the map and take actions regarding to the place they stop. If they are sitting on a settlement, they have the option to buy it from the bank or they can leave it to be sold in auction. If that settlement is occuppied, they have to pay rent to the owner. The players also take different actions according to the place they have landed, such as drawing a Chance/Community Chest card, going into the jail, paying Income/Luxury Taxes. All players start the game with same amount of money and earn money when they pass the starting point. Settlements are seperated into color codes and if a player has all the settlements from the same color, the rent fee is doubled (until a house/hotel is build) and he/she can start building houses or an hotel to increase the rent. When a player is low on money, they can sell the buildings in a settlememt, mortgage a settlement or make agreements with other players if the other player is willing to do so. When a player has no way remaining to earn money and have no money left, they go bankrupt and lose the game. Monopoly has many rules and has different editions, where said rules may change. You may read the
